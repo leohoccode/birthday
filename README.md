@@ -1,3 +1,0 @@
-# birthday
-happybirthday
-hehehe
